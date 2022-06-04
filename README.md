@@ -6,4 +6,3 @@
 - 📫 How to reach me: ... shahzeb_kkhan@outlook.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... AC Milan is my favourite soccer team
--->
